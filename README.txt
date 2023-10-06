@@ -1,1 +1,1 @@
-Don’t square me
+decentralize, distribute, federate the internet
